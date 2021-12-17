@@ -1,0 +1,1 @@
+ShredCraft is a repository for stuff about Skateboarding.
